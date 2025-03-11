@@ -1,0 +1,1 @@
+# LexiTech-Legal-AI-Challenge
